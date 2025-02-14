@@ -63,10 +63,10 @@ Sou também criador de conteúdo digital no **Alan Cleber Games**, acumulando ma
 
 ## 📞 Formas de Contato  
 📌 **GitHub:** [superalanjoe](https://github.com/superalanjoe)  
-📌 **LinkedIn:** [Alan Cleber](https://www.linkedin.com/in/alan-cleber/)  
+📌 **LinkedIn:** [Alan Cleber](https://www.linkedin.com/in/alancleber/)  
 📌 **Website:** [Alan Cleber Games](https://superalanjoe.github.io/AlanCleberGames/)  
-📌 **TikTok & Redes Sociais:** [@alanclebergames](https://www.tiktok.com/@alanclebergames)  
-📩 **E-mail:** alanclebercontato@gmail.com  
+📌 **TikTok & Redes Sociais:** [@alanclebergames5](https://www.tiktok.com/@alanclebergames5)  
+📩 **E-mail:** superalanjoe@hotmail.com  
 
 ---
 
